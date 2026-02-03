@@ -6,3 +6,9 @@
 
 - [Cornell University](https://www.cornell.edu)
 - [Columbia University](https://www.columbia.edu)
+  
+## Professional Interests
+
+- Energy systems
+- Electricity markets
+- Climate mitigation and adaptation

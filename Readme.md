@@ -1,6 +1,5 @@
 # Evelyn Fahlen
-
-![My spirit animal][https://www.istockphoto.com/photo/mother-and-calf-dolphin-swimming-by-gm1303043820-394618104)]
+![My spirit animal](https://pixnio.com/free-images/2025/01/08/2025-01-08-19-54-46-1344x1344.jpeg)
 
 ## Education
 
